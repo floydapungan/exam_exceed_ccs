@@ -1,1 +1,0 @@
-# exam_exceed_ccs
